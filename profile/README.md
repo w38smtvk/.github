@@ -5,4 +5,4 @@
 - 🌈 This is an invite-only organization.
 - 👩‍💻 Every one can find the documents on [w38smtvk](https://github.com/w38smtvk).
 - 🍿 Our team menbers never eat breakfast actually.
-- 🧙 Join it!
+- 🧙 Join us!
